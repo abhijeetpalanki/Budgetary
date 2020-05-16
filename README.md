@@ -1,1 +1,1 @@
-CLICK HERE LAUNCH WEBSITE - https://abhijeetpalanki-budgetary.netlify.app/
+CLICK HERE TO LAUNCH WEBSITE - https://abhijeetpalanki-budgetary.netlify.app/
